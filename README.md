@@ -1,1 +1,5 @@
-# Yap-lacak-i-lemler-imdilikYap-lacak-i-lemler-imdilik
+.
+.
+
+.
+.# Yap-lacak-i-lemler-imdilikYap-lacak-i-lemler-imdilik
